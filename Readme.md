@@ -3,6 +3,6 @@ F
 # szia áron
 # Szia Áron
 # Yello mindenkinek
-# szioka
+# pranked:)
 # bfbfbfbf
 # szijamia
