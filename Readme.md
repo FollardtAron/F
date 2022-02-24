@@ -6,4 +6,4 @@ F
 # pranked:)
 # bfbfbfbf
 # szijamia
-# a segitseg elfelejtett erkezni
+# a nagyon gyanus
