@@ -6,4 +6,4 @@ F
 # pranked:)
 # bfbfbfbf
 # szijamia
-# a nagyon gyanus imposztor suszi baka >.< X3
+# a nagyon gyanus imposztor suszi baka >.< X3 uwu
