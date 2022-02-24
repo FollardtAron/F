@@ -6,4 +6,4 @@ F
 # pranked:)
 # bfbfbfbf
 # szijamia
-# feresett akeri
+# feresett aferi
