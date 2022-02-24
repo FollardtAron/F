@@ -6,4 +6,4 @@ F
 # pranked:)
 # bfbfbfbf
 # szijamia
-# kerlek segitsetek ez nem egy vicc
+# a segitseg elfelejtett erkezni
