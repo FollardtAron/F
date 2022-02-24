@@ -6,4 +6,4 @@ F
 # pranked:)
 # bfbfbfbf
 # szijamia
-# karacsony gergely
+# kerlek segitsetek ez nem egy vicc
