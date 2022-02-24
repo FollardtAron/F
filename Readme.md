@@ -6,4 +6,4 @@ F
 # pranked:)
 # bfbfbfbf
 # szijamia
-# a nagyon gyanus mondvan igen
+# ez amugy csunya volt
