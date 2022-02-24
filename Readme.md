@@ -6,4 +6,4 @@ F
 # pranked:)
 # bfbfbfbf
 # szijamia
-# ez amugy csunya volt
+# szeretem a tejet
